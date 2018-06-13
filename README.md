@@ -1,3 +1,1 @@
-# Chocolate
-This is all about chocolates
-Now Shall discuss about chocolates
+Chocolate has become one of the most popular food types and flavors in the world, and a vast number of foodstuffs involving chocolate have been created, particularly desserts including cakes, pudding, mousse, chocolate brownies, and chocolate chip cookies. Many candies are filled with or coated with sweetened chocolate, and bars of solid chocolate and candy bars coated in chocolate are eaten as snacks. Gifts of chocolate molded into different shapes (e.g., eggs, hearts, coins) have become traditional on certain Western holidays, such as Easter, Valentine's Day, and Hanukkah. Chocolate is also used in cold and hot beverages such aschocolate milk and hot chocolate and in some alcoholic drinks, such as creme de cacao.
